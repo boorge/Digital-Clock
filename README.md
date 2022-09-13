@@ -1,4 +1,7 @@
 # Digital-Clock
 
+https://user-images.githubusercontent.com/78689154/189844876-1da4edf0-d7d9-469f-b7cd-46cf0262892c.mp4
 
-https://user-images.githubusercontent.com/78689154/189844000-5ef2f702-586e-418b-b0df-8c094a24cd5a.mp4
+
+
+
